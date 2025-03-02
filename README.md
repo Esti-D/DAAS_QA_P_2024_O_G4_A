@@ -5,7 +5,7 @@ Participantes:
 
 -Luis Ignacio de Luna
 
--Ahmad Marie Pascual
+-Ahmad Mareie Pascual
 
 -Adrian Zamora
 
